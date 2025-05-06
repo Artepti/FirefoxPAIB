@@ -1,2 +1,2 @@
 📺 [Download instructions](https://www.youtube.com/watch?v=QYfmLjLHDMg)
-Only use this extension for the English language!!
+Recommended to be only used for the English language!
